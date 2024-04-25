@@ -1,1 +1,1 @@
-## Boas vindas ao meu perfil 😀
+## Bom vindo ao meu perfil 😀
